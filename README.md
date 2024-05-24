@@ -1,4 +1,5 @@
-![image](https://github.com/Ferdxd/Ferdxd/assets/74109477/79f038de-6ff3-427b-95c4-f208c62af4a1)
+![OIG3](https://github.com/Ferdxd/Ferdxd/assets/74109477/bc64b354-9ea1-4fe6-92ea-b7f076289843)
+
 
 
 
