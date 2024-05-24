@@ -1,5 +1,3 @@
-![OIG3](https://github.com/Ferdxd/Ferdxd/assets/74109477/c96233a9-22b1-4f7e-95b6-a3a16119ba98)
-
 
 👋 Bienvenido a mi perfil soy un desarrollador junior con experiencia en multiples proyectos utilizando una gran variedad de tecnologias
 
